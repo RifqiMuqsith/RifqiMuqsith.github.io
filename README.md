@@ -1,1 +1,1 @@
-# rifqimuqsith.github.io
+# RifqiMuqsith.github.io
